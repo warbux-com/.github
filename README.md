@@ -19,7 +19,3 @@ Join us on this creative journey and let's make your digital dreams a reality!
 
 ### Our Mission
 At Warbux, we strive to unleash the full potential of your creativity. We are committed to providing top-notch services that help you achieve your goals and stand out in the digital world.
-
----
-
-[Warbux](https://warbux.com/) | [Instagram](https://www.instagram.com/warbux/) | [Email](mailto:hello@warbux.com)
